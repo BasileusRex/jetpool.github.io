@@ -14,4 +14,4 @@ _*COMING SOON*_
 ### About Us
 
 *Currently operating in stealth mode*  
-Can't wait for more info? [contact us](mailto:help@bizkit.copm.au)
+Can't wait for more info? [contact us](mailto:help@bizkit.com.au)
